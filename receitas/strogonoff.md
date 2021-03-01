@@ -9,7 +9,8 @@
 
 ### Modo de preparo
 
- 1 
+1. Em uma panela a fogo médio
+2. 
 
 
 
